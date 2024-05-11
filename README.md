@@ -1,6 +1,6 @@
 ![image](https://camo.githubusercontent.com/03323ca039a2a7c7303e2b166919e10d01eb477ada15dad39b17c9298785eb4a/68747470733a2f2f36342e6d656469612e74756d626c722e636f6d2f36303539376334306461653464333130653938643965653439346133376532322f333563383462363133623932323930332d34652f73353430783831302f613731626361356635353364333136333262376531643662653832353430636635333666373464632e706e6a)          
                                                                                            $${\color{#FF47A9}\ birds…}$$ $${\color{#F5C7E2} should  \ fly}$$ $${\color{#FF47A9}
-                                                                                        freely}$$ $${\color{#F5C7E2}in   \ the\ sky}$$♥︎♥︎♥︎♥︎♥︎♥︎♥︎.         ♥︎♥︎♥︎♥︎♥︎♥︎♥︎. 
+                                                                                        freely}$$ $${\color{#F5C7E2}in   \ the\ sky}$$
                                                                                       
 
 ![image](https://64.media.tumblr.com/825932bb92c622f721669ad0c9111645/986105ef1a9db4a5-46/s400x600/39dfc35f5b1474d2db65d0da0c8af6858c3bdd28.gifv)
