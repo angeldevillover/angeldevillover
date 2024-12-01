@@ -2,7 +2,8 @@
 
         
 
-->![image](https://github.com/user-attachments/assets/aac4243f-64f6-48d9-ad71-820b0e5bf07f)
+![image](https://github.com/user-attachments/assets/b0415e56-2282-4d98-93aa-b17e1e447751)
+
 
             𝜗𝜚  HIII *SHO*+ **GHOSTIE**^_^  C + H ALR!!    ꒰  LUV MY FRIENDSSSS ^3^ <33  ꒰   2 . 24 *!*   ꒰ #self love <3.    
 
