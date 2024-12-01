@@ -1,7 +1,10 @@
-![image](https://github.com/angeldevillover/angeldevillover/assets/101401562/efec5fc0-0aa7-4642-94d6-395a06981ea6)
+![image](![image](https://github.com/user-attachments/assets/d5aeb425-bcbe-4cca-a066-de919120dc90)
+)
         
 
-![image](https://64.media.tumblr.com/5552db81cfe4ce6cdee6bd784409d5fe/2d02caa14ab38576-26/s640x960/10584b3ec8cecf72aabc13b4a7c32efa6516ba6a.gifv)
+![image](![image](https://github.com/user-attachments/assets/80b8eabe-b609-4cbb-908a-1c2c7d472279)
+)
             𝜗𝜚  HIII *SHO*+ **GHOSTIE**^_^  C + H ALR!!    ꒰  LUV MY FRIENDSSSS ^3^ <33  ꒰   2 . 24 *!*   ꒰ #self love <3.    
-![image](https://camo.githubusercontent.com/c8ca6f834f609e2a7dbb2aaf261cb9b9363465883510602433c4383e33f9ccc8/68747470733a2f2f36342e6d656469612e74756d626c722e636f6d2f36393336653333326665656535313463613831316531303566616538633136652f363032373738363138363165643537332d65392f73363430783936302f373762663166353137646233326334653062656366343861373133323235383262636338366164312e706e6a)
-![image](https://64.media.tumblr.com/6e32788770911611ff67f0b8843e95d9/d9a67a81a7b9ab87-ab/s1280x1920/4da19d3b828017b55aae6865fb3f4c2e4f73377c.pnj)
+
+![image](![image](https://github.com/user-attachments/assets/646bb1a8-26fe-430a-afea-39dd5cff44dc)
+
